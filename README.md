@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-Iam  Nithya Santhosshiny
+I am  Nithya Santhosshiny
